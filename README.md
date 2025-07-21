@@ -6,9 +6,9 @@ hellloooooo!!! this profile is for the sole purpose of ponytown, nothing else (*
 
 any pronouns, by the way!! for all you know i could be a metal-bending robot or a helicopter... maybe a 10 year old kid sent to kong studios through a fedex crate. 
 
-i loooove music!! i'd die withtout it, so here's my main favorite artists!!
+i loooove music!! i'd die without it, so here's my main favorite artists!!
 ↓
-- interpol, gorillaz, beck, daft punk, blur, the strokes, MGMT
+- interpol, gorillaz, beck, daft punk, blur, the strokes, MGMT, muse
 
 i don't bite! i overall am not picky with people unless you meet the checkmark of basic DNI standards. please, be a decent person for the life of anyone.
 
