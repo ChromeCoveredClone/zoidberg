@@ -14,3 +14,5 @@ i don't bite! i overall am not picky with people unless you meet the checkmark o
 things i'm in! i'd love to int with people interested in them as well!
 ↓
 - futurama, eddsworld, asdfmovie, YFM
+
+![hello](https://static1.cbrimages.com/wordpress/wp-content/uploads/2023/01/futurama-hermes-brain-slug.jpg)
