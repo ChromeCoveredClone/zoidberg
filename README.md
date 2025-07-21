@@ -4,7 +4,7 @@
 
 hellloooooo!!! this profile is for the sole purpose of ponytown, nothing else (*unless there's some other website i'll get addicted to and it gives me the option to provide my github, then maaaybeeee...*)
 
-any pronouns, by the way!! for all you know i could be a metal-bending robot or a helicopter... maybe a 10 year old kid sent to kong studios through a fedex crate. 
+any pronouns, by the way!! for all you know i could be a metal-bending robot or a helicopter... maybe a 10 year old japanese kid sent to kong studios in a fedex crate. 
 
 i loooove music!! i'd die without it, so here's my main favorite artists!!
 ↓
