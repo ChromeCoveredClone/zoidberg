@@ -1,10 +1,12 @@
 # "Why not Zoidberg?"
 
-![freedom](https://i.imgur.com/lTi98P1.gif)
+ ![freedom](https://i.imgur.com/lTi98P1.gif) 
+ 
+**"Freedom, freedom, freedom, oy!"**
+#
+「hellloooooo!!! this profile is for the sole purpose of ponytown and discord, nothing else (*unless there's some other website i'll get addicted to and it gives me the option to provide my github, then maaaybeeee...*)
 
-hellloooooo!!! this profile is for the sole purpose of ponytown and discord, nothing else (*unless there's some other website i'll get addicted to and it gives me the option to provide my github, then maaaybeeee...*)
-
-any pronouns, by the way!! for all you know i could be a metal-bending robot or a helicopter... maybe a 10 year old japanese kid sent to kong studios in a fedex crate. 
+any pronouns, by the way!! for all you know i could be a metal-bending robot or a helicopter... maybe a 10 year old japanese kid sent to kong studios in a fedex crate. it doesn't matter what gender you you think of me as
 
 i loooove music!! i'd die without it, so here's my main favorite artists!!
 ↓
@@ -14,8 +16,12 @@ i don't bite! i overall am not picky with people unless you meet the checkmark o
 
 *how does one work with github on mobile holy crap..*
 
-things i'm in! i'd love to int with people interested in them as well!
+things i'm in! i'd love to int with people interested in them as well!」
 ↓
 - futurama, eddsworld, asdfmovie, YFM
+#
 
 ![hello](https://static1.cbrimages.com/wordpress/wp-content/uploads/2023/01/futurama-hermes-brain-slug.jpg)
+
+**"On to new business. Today's mission is for you all to go to the Brain Slug planet."**
+#
