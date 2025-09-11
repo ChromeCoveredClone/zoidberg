@@ -10,7 +10,7 @@ any pronouns, by the way!! for all you know i could be a metal-bending robot or 
 
 i loooove music!! i'd die without it, so here's my main favorite artists!!
 ↓
-- interpol, gorillaz, beck, daft punk, blur, the strokes, MGMT, muse
+- interpol, gorillaz, beck, daft punk, blur, the strokes, MGMT, muse, the killers, queens of the stone age
 
 i don't bite! i overall am not picky with people unless you meet the checkmark of basic DNI standards. please, be a decent person for the life of anyone.
 
