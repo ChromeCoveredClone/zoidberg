@@ -10,9 +10,9 @@ any pronouns, by the way!! refer to me as anything because for all you know i co
 
 i loooove music!! i'd die without it, so here's my main favorite artists!!
 ↓
-- interpol, gorillaz, beck, daft punk, blur, the strokes, MGMT, muse, the killers, queens of the stone age
+- interpol, gorillaz, beck, daft punk, blur, the strokes, MGMT, muse, the killers, queens of the stone age, modest mouse
 
-i don't bite! i overall am not picky with people unless you meet the checkmark of basic DNI standards. please, be a decent person for the life of anyone.
+i don't bite! i overall am not picky with people unless you somehow check the checkmark of basic DNI standards. please, be a decent person for the life of anyone.
 
 *how does one work with github on mobile holy crap..*
 
