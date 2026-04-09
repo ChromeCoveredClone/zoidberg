@@ -10,9 +10,9 @@ my name is sorrow and fellow
 
 any pronouns! i remain always anonymous so it doesn't matter.
 
-i loooove music!! i'd die without it, so here's my main favorite artists!!
+i loooove music!! i'd die without it, so here's my main favorite artists!! (i'm actually trying to rebuild my taste 'cause i'm having a fixation right now)
 ↓
-- interpol, gorillaz, beck, daft punk, blur, the strokes, MGMT, muse, the killers, queens of the stone age, modest mouse
+- ween.
 
 i don't bite! i overall am not picky with people unless you somehow check the checkmark of basic DNI standards. please, be a decent person for the life of anyone.
 
@@ -20,7 +20,7 @@ i don't bite! i overall am not picky with people unless you somehow check the ch
 
 things i'm in! i'd love to int with people interested in them as well!」
 ↓
-- futurama, eddsworld, asdfmovie, YFM, the archies
+- futurama and the archies *ik ik i'm boring as hell*
 #
 
 ![hello](https://static1.cbrimages.com/wordpress/wp-content/uploads/2023/01/futurama-hermes-brain-slug.jpg)
