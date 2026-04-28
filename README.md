@@ -6,17 +6,15 @@
 #
 「hellloooooo!!! this profile is for the sole purpose of ponytown and discord, nothing else (*unless there's some other website i'll get addicted to and it gives me the option to provide my github, then maaaybeeee...*)
 
-my name is sorrow and fellow
+my name is sorrow and fellow and other names yada yada
 
-any pronouns! i remain always anonymous so it doesn't matter.
+any pronouns! i like to remain anonymous so it doesn't matter.
 
 i loooove music!! i'd die without it, so here's my main favorite artists!! (i'm actually trying to rebuild my taste 'cause i'm having a fixation right now)
 ↓
 - ween.
 
-i don't bite! i overall am not picky with people unless you somehow check the checkmark of basic DNI standards. please, be a decent person for the life of anyone.
-
-*how does one work with github on mobile holy crap..*
+a lot of times i don't like to interact with people unless it's my partner. but i don't bite when i do have the motivation to interact with people, hit me up with a hi when i'm available!
 
 things i'm in! i'd love to int with people interested in them as well!」
 ↓
